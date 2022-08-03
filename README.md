@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @skllytn
-- 👀 I’m interested in music, games, electronics, girlfriend
+- 👀 I’m interested in music, games, electronics...
 - 🌱 I’m currently learning python
 - 💞️ I’m not sure about any collaborations yet. I'm very new
 - 📫 How to reach me: Twitter: @skllytn, Discord: Skellyton#5055
